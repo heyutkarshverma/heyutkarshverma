@@ -19,7 +19,7 @@ Welcome to my GitHub profile! I'm a passionate developer who enjoys building pra
 - **LinkedIn:** [@heyutkarshverma](https://www.linkedin.com/in/heyutkarshverma/)
 - **X (Twitter):** [@heyutkarshverma](https://x.com/heyutkarshverma)
 - **Instagram:** [@heyutkarshverma](https://www.instagram.com/heyutkarshverma/)
-- **Facebook:** [@heyutkarshverma](https://www.facebook.com/heyutkarshverma)
+- **Facebook:** [@heyutkarshvermaa](https://www.facebook.com/heyutkarshvermaa)
 - **Snapchat:** [@heyutkarshverma](https://www.snapchat.com/add/heyutkarshverma)
 
 ---
